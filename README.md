@@ -1,2 +1,1 @@
 # testedois-git
-ivtucutgctcc
